@@ -202,7 +202,7 @@
 
 <div align="center">
   :heart_eyes: Thanks for watching my profile! Have a nice day! :wink: <br/>
-  &copy; 2025 Jherostudio
+  &copy; 2026 Jherostudio
 </div>
 
 
